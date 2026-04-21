@@ -1,16 +1,26 @@
-## Hi there 👋
+## Heyy   !     . Ren here
 
-<!--
-**unhealthful/Unhealthful** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+"    I pronounce as  he/him    ^___^
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+   I'm  okay  with c+h    &    ships as long as you're respectful
+
+
+     ,  I like cats
+
+I'm into a lot of fandoms, mainly focused on args/UU smp!
+
+
+     , I'm  queerplatonic
+
+
+  kin list:   wifies,  spoke,  derapchu,  Ze/z  ,  Paul  & Travis! 
+
+
+      , sys. 
+
+      
+my name tags info -> s-nv: slow reply/w2i  , nv: no reply 
+
+      /!! pls interact with patience and care, I get a lot of pressure when people  constantly  talk to me when  Im  not focused  ^-^ 
