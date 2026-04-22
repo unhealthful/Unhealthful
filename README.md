@@ -4,7 +4,7 @@
 
 
 
-   I'm  okay  with c+h    &    ships as long as you're respectful
+   I'm  okay  with c+h    &    ships as long as you're respectful and it isn't boundary breaking
 
 
      , I'm mostly offtab, on menu  &  doomscrolling on tiktok  
@@ -15,10 +15,10 @@ I'm into a lot of fandoms, mainly focused on args/UU smp!
      , I'm  queerplatonic, I'm so cool right
 
 
-  kin list:   wifies,  spoke,  derapchu,  Ze/z  ,  Paul  & Travis! 
+  kin list:   planetlord, wifies,  spoke,  derapchu .. booker(drawn out) & Travis(TMIRB) yayy yay
 
 
-      , sys. 
+      . sys!!! sys! 
 
       
 my name tags info -> s-nv: slow reply/w2i  , nv: no reply 
